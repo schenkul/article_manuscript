@@ -1,2 +1,2 @@
 # Manuscript
-Autor: Ulrike Schenk
+Autor: Ulrike Gabriele Anna Maria Schenk
